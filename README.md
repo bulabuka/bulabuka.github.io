@@ -1,2 +1,0 @@
-# bulabuka.github.io
-welcome
